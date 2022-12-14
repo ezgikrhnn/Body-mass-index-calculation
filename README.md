@@ -1,0 +1,1 @@
+# ezgikrhnn-Java_vucutKitleEndeksiMiniProje
